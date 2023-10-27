@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Carloscpx7
+- 👋 Hi, I’m Carlos Eduardo
 - 👀 I’m interested in to study
 - 🌱 I’m currently learning coisas novas
 - Estudo no Colégio Alfredo
