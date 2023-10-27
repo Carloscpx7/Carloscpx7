@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Carloscpx7
 - 👀 I’m interested in to study
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning coisas novas
 - Estudo no Colégio Alfredo
 - 📫 How to reach me ...
 
